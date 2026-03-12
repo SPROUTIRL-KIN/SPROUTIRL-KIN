@@ -1,6 +1,6 @@
 <div align="center">
 
-if you have read 'john-shedletsky' doc, please read the doc in my other account, 'sproutirl-cupcake'. please refrain from attacking me! we broke up. i blocked him in all platform. but if he dare to come back, mark my word, I'll block him. I know how he talk, i know how he'll change his github.
+if you have read 'john-shedletsky' doc, please read the doc in my other account, 'sproutkin-cupcake'. please refrain from attacking me! we broke up. i blocked him in all platform. but if he dare to come back, mark my word, I'll block him. I know how he talk, i know how he'll change his github.
  
 </div>
 
