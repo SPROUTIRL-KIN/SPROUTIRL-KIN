@@ -1,6 +1,6 @@
 <div align="center">
 
-if you have read 'john-shedletsky' doc, please read the doc in my other account, 'sproutkin-cupcake' and also 'PuppyS3VN'. please refrain from attacking me! we broke up. i blocked him. but please remember not to attack him.
+if you have read 'john-shedletsky' doc, please read the doc in my other account, 'sproutkin-cupcake' and also 'PuppyS3VN'. please refrain from attacking me! we broke up. i blocked him. but please remember not to attack him too.
  
 </div>
 
