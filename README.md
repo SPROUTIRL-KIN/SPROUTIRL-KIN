@@ -1,6 +1,6 @@
 <div align="center">
 
-if you have read 'john-shedletsky' doc, please read the doc in my other account, 'sproutkin-cupcake'. Also for awareness, read doc in PuppyS3VN github. 
+NO. i'm not dating him. So don't come after me.
  
 </div>
 
