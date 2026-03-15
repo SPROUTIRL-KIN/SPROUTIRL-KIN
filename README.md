@@ -35,12 +35,7 @@ _"to the Heavens may you fly"_
 
  
  
- f/o / yumes [nonsharing] : 
- [ looey , dandy ]
- &
- [ caporegime , soldier !! ]
-</div>
-
+ [pronouns . read this](https://pronouns.cc/@sumiaa)
 
 
 
