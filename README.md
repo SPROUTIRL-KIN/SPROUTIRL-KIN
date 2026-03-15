@@ -1,6 +1,6 @@
 <div align="center">
 
-NO. i'm not dating him. So don't come after me.
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zv2gp4dkre2r6csbhow4nmmbbi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8a2e20&interchange=false&profanity=false&bar_color=568544&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  
 </div>
 
