@@ -1,8 +1,18 @@
 <div align="center">
 
-"fly fly away..like a bird in the sky"
-"see the world on my behalf"
-"to the Heavens may you fly"
+_"fly fly away..like a bird in the sky"_
+
+</div>
+
+<div align="center">
+
+_"see the world on my behalf"_
+
+</div>
+
+<div align="center">
+ 
+_"to the Heavens may you fly"_
  
 </div>
 
