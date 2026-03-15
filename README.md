@@ -1,6 +1,8 @@
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zv2gp4dkre2r6csbhow4nmmbbi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=8a2e20&interchange=false&profanity=false&bar_color=568544&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
+"fly fly away..like a bird in the sky"
+"see the world on my behalf"
+"to the Heavens may you fly"
  
 </div>
 
