@@ -20,7 +20,7 @@ _"to the Heavens may you fly"_
 
 <div align="center">
 
- <img align="left" src="https://img.sanishtech.com/u/77946120c00f8a6b933caa87fc217e7a.png" width="140" height="165"> HE'S ME BTW !!!
+ <img align="left" src="https://image2url.com/r2/default/images/1773911903691-043fe349-69d3-4420-a947-ebd5b706b37e.png" width="140" height="165"> bassie and sprout irl‹3
  
   <div align="center">
 
