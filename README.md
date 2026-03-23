@@ -46,5 +46,5 @@ _"to the Heavens may you fly"_
 </div>
 
 <div align="center">
-I'm not gonna state this twice. if you can't move on from it, block/hide me. I've change, so don't come after me.
+I'm not gonna state this twice. if you can't move on from it, block/hide me. I've change, so please don't come after me.
 </div>
