@@ -44,3 +44,7 @@ _"to the Heavens may you fly"_
 <a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?color=d1bc95&labelColor=899974"/></a>
 
 </div>
+
+<div align="center">
+I'm not gonna state this twice. if you can't move on from it, block/hide me. I've change, so don't come after me.
+</div>
